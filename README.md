@@ -3,6 +3,5 @@
 - 🌱 I’m currently learning NFT and Metaverse (Don't want to miss that bus)
 - 💞️ I’m looking to collaborate on Future projects with creatives I'm a solid Character artist as well as a storyteller and look forward to breathing life into future concepts
 - 📫 How to reach me ... discord: Tribe_U. Twitch: Tribe_U_Social. Instagram: Tribe_U_Illustrations, Tribe_U_deisgn, Tribe_U_Canvases. Website:tntuwaasa.com
-Tribe-U/Tribe-U is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+
 --->
